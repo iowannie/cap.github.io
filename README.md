@@ -1,2 +1,2 @@
-# cap.github.io
-Photo collection to share with C for her birthday
+# iowannie.github.io
+Photo collection to share with CAP for her birthday
