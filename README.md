@@ -2,7 +2,7 @@
 
 Photos of 
 - Maynard and Harvey
-![](https://github.com/iowannie/iowannie.github.io/photos/19E6DE50-7852-496D-AD20-10550D0066F2_1_105_c.jpeg)
+![](https://github.com/iowannie/iowannie.github.io/photos/19E6DE50-7852-496D-AD20-10550D0066F2_1_105_c.jpg)
 
 - the kitties (Dory, George, Bug, and
 - Toothless (because she looks like the dragon)
